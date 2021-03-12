@@ -1,4 +1,4 @@
-# ลบไม่ได้ช่วยให้ลืม (Erase)
+# ลบไม่ได้ช่วยให้ลืม (Erase) Good morning how are you today?
 ## Artist: INK WARUNTORN
 ## เนื้อเพลง
 
